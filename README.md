@@ -40,7 +40,7 @@
 
 ## My Question is not in the list
 
-- Join our [Support Server](https://discord.gg/Krcuc5wZ)
+- Join our [Support Server](https://discord.gg/7k8XB2jwWQ)
 - Contact Us on discord [Community Server](https://discord.gg/QNfmMqWT5Y)
 - Server invite is invaild, all channels are locked mail us
 - Mails - itzmeken_official@proton.me
